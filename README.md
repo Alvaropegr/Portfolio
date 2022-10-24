@@ -5,20 +5,38 @@ Estos son algunos de los proyectos que he realizado individualmente, y en ocasio
 
 https://laresidenciatarifa.com/
 
+
 https://nauticol.es/es/
+
 https://www.grupoipg.com/
+
 https://venturatarifa.com/
+
 https://todoneumaticas.es/
+
 https://galacticblum.com/
+
 https://provocateurroses.com/
+
 https://floramarket.es/
-https://www.teletaxijerez.com/ (antigua web, diseño de branding y publicidad en taxis)
+
+https://www.teletaxijerez.com/ 
+
 https://fixpluscar.com/
+
 https://grupoaristeo.com/
+
 https://ldeventos.es/
+
 https://www.ansasol.com/
-https://miafernandez.es/ (con cambios de otra empresa)
+
+https://miafernandez.es/
+
 https://www.grupohla.com/es/hospitales-clinicas/clinica-serman-hla
+
 https://www.jmcordon.com/
+
 https://semirrigidascobra.es/
-https://wata.es/ (parte del proyecto)
+
+https://wata.es/ 
+
