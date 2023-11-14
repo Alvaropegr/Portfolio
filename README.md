@@ -3,40 +3,30 @@ Portfolio de Álvaro Pérez Granda
 
 Estos son algunos de los proyectos que he realizado individualmente, y en ocasiones con equipos de trabajo en los últimos años. 
 
+
+https://joyeriagordillo.com/
+https://elcapi.com/
+https://lempickacollection.com/
+https://www.mayvarela.es/
+https://villanuevagolf.com/
+https://arcosgardensgolf.com/
+https://treforma.es/
+https://aldecora.com/
 https://laresidenciatarifa.com/
-
-
 https://nauticol.es/es/
-
 https://www.grupoipg.com/
-
 https://venturatarifa.com/
-
 https://todoneumaticas.es/
-
 https://galacticblum.com/
-
 https://provocateurroses.com/
-
 https://floramarket.es/
-
-https://www.teletaxijerez.com/ 
-
+https://www.teletaxijerez.com/ (antigua web, diseño de branding y publicidad en taxis)
 https://fixpluscar.com/
-
 https://grupoaristeo.com/
-
 https://ldeventos.es/
-
 https://www.ansasol.com/
-
-https://miafernandez.es/
-
+https://miafernandez.es/ (con cambios de otra empresa)
 https://www.grupohla.com/es/hospitales-clinicas/clinica-serman-hla
-
 https://www.jmcordon.com/
-
 https://semirrigidascobra.es/
-
-https://wata.es/ 
-
+https://wata.es/ (parte del proyecto)
