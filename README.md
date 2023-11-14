@@ -54,6 +54,5 @@ https://www.jmcordon.com/
 <br>
 https://semirrigidascobra.es/
 <br>
-https://wata.es/ (parte del proyecto)
 
 alvaropegr@gmail.com
